@@ -1,1 +1,1 @@
-## This is my student GitHub profile 😁
+## This is my amazing GitHub profile 😁
